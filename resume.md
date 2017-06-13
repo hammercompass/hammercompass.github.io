@@ -11,7 +11,7 @@ garydabelza@gmail.com
 
 Sep 2016 – Sekarang: Mahasiswa angkatan 53.<br />
 
-### SMA Negeri 3 Jakarta].
+### SMA Negeri 3 Jakarta
 
 Jul 2013 – Jun 2016<br />
 
@@ -21,11 +21,11 @@ juli 2010 - juli 2013<br />
 
 ### SD Advent XV Ciracas
 
-juli 2006 - juli 2010<br />Hobi
+juli 2006 - juli 2010<br />
 
 ### SDN Curug 2
 
-juli 2004 - juli 2006 <br />].
+juli 2004 - juli 2006 <br />
 
 ## Keahlian
 
